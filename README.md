@@ -4,7 +4,9 @@ I am Haris jawaid and currently a student at fast nuces.I have interest in progr
 #**ACADEMICS**
 
 1.O levels
+
 2.A levels
+
 3.Bachelors
 
 #**SKILLS**
